@@ -116,6 +116,44 @@
 
 </details>
 
+<details>
+  <summary><h3>Bài 4</h3></summary>
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436168623_d3929779398fd7f4c5f284ee42623076.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436169598_8d4be530bca64d52ef48f30ca7811f0f.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436169758_f38fa895743b2687a29ca66a54770649.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436169965_e387ce030768f4a212e3a4478c6439be.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436170485_42d16e567163d5ccea2ea10a8a99b148.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436170602_7570196e0c378b64a0565fd9ad7db0af.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436171051_4a31ad3a86a3b107a6885e7752283fa8.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436172100_720770724aeacb081b1ceece679ace24.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436172355_e2a85c9de94903ccd197cd509088be18.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436172886_5dac3aea79cd519c5964b5ec31e169dd.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436173556_70c13f2cd1d0a364dc8653f95f6cabda.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436173575_b7920294fb906f779cfa674b0939345b.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436173732_a004eb826e0068ddde866d02588323b8.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436175168_83a145b3019328dcab89c417a4c0484b.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436175358_f3fd9cc7b8a11ec8ee1abaafa668ed42.jpg)
+
+![](https://github.com/hthuan02/Trac-nghiem-Tin-A-B/blob/main/Tin_A/4/z6629436176324_8f1a3b3a6fc3ecdc3f7ed72132b8e76b.jpg)
+
+
+
+</details>
 
 
 <details>
